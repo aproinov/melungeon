@@ -4,6 +4,8 @@
 Guidelines for Exploring Melungeon Heritage in Famous Americans
 =========================================
 
+Reference and resources: `Lest We Forget: The Melungeon Colony of Newman's Ridge Paperback – January 1, 2000 <https://www.amazon.com/Lest-We-Forget-Melungeon-Newmans/dp/157072167X>`_
+
 Introduction
 ============
 
