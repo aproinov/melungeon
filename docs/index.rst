@@ -1,6 +1,6 @@
 .. include:: ../README.rst
 
-Welcome to ancestry documentation!
+Welcome to the top famous ancestry documentation!
 ===================================
 
 .. note::
