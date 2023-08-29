@@ -1,4 +1,4 @@
-Meungeons Ancestry Documentation
+Melungeons Ancestry Documentation
 ==================
 
 The mystery of Melungeons, a tri-racial group in the U.S. with unclear origins, has captivated historians and the public alike. Intriguingly, two American icons, Abraham Lincoln and Elvis Presley, are often cited as possible Melungeons. Lincoln's 1859 biographical statement notes features and family history that align with Melungeon characteristics, fueling speculation that began as far back as his anti-slavery campaigns in the 1850s. Similarly, Elvis Presley's lineage includes potential ties to the Melungeon community through his great-great-great-grandmother, Morning Dove White, a Cherokee Indian from Tennessee.
